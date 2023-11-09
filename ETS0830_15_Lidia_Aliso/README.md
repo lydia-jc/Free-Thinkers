@@ -1,0 +1,1 @@
+Free thinker,Founded by a group of passionate technologists, Thinkers has established a reputation for embracing cutting-edge technologies and fostering a culture of creativity.With an eye towards the futur,Free Thinkers is positioned as catalyst fornchange within the software community
